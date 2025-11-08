@@ -1,2 +1,2 @@
-# Silent_Stories A Digital Art Gallery  
+# Silent Stories: A Digital Art Gallery  
 
